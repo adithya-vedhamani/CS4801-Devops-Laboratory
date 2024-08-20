@@ -1,4 +1,3 @@
-Shiv Nadar University Chennai
+Shiv Nadar University, Chennai (SNU Chennai) is a private university located on SH-49A in Kalavakkam village near Thiruporur, around 20 km south of Chennai in Tamil Nadu, India.
 
-A global university, focused on innovation, research & academic excellence. 
-Admissions are now open for B.Tech in AI & Data Science, IoT and Cyber Security | B.Com (Honors) & (Prof.  Accounting) | B.Sc. Economics (Data Science)
+It was launched in October 2020, the second university to be set up by the Shiv Nadar Foundation, following Shiv Nadar University, Dadri in Uttar Pradesh. It is the first private university to be legislated in Tamil Nadu in nine decades.[2] It shares the campus with Sri Sivasubramaniya Nadar College of Engineering.
